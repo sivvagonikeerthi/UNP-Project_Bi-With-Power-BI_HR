@@ -11,5 +11,5 @@ Key highlights:
 
 PBIX file link: https://drive.google.com/file/d/11BUhd4tz9oDERA9nLv1_xulGao_k4Koy/view?usp=sharing                
 PDF link : https://drive.google.com/file/d/1IQPoUT3srmKlf51NoLxAst3g7LymCugr/view?usp=sharing                       
-Canva link : https://drive.google.com/file/d/1_Wu2p6D98x0STQYWHEL6_YWRna_lH_8U/view?usp=sharing      
+Canva link : https://drive.google.com/file/d/1W4ea2HP-xt48dQb8wiwwMxQ5bh1WXX8l/view?usp=sharing      
 
